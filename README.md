@@ -1,1 +1,0 @@
-# ayongajifisika.github.io
